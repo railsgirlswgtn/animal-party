@@ -10,6 +10,8 @@ And then Apollo Coffee came to the rescue. All the animals that had been sleepy 
 
 ![COFFEE](http://blog.muchmusic.com/wp-content/uploads/2014/03/Ke7XsN8.gif)
 
+![Coffeeeee](http://i.imgur.com/vnsLH3I.jpg)
+
 "LET'S PARTY" said the fox. 
 
 "It's my birthday", said the Official Rails Girls Puppy.
@@ -45,6 +47,3 @@ Party Transport will be provided, hope you don't mind getting wet!
 The red pandas agreed a party was an excellent plan ![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
 
 Annnnd the next door neighbours goat was sad because he wasnt invited ![goats](https://twitter.com/CEMerriman/status/449732644247334912/photo/1)
-
-<h2>Go home cat, you're drunk.</h2>
-<p><img src="http://i1112.photobucket.com/albums/k497/animalsbeingdicks/abd-01272014.gif" alt="wtf" /></p>
