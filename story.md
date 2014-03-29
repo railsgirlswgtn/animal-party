@@ -23,3 +23,5 @@ One of the guests, Doge, was very impressed with the catering!
 It's a good thing some one thought to invite the chicken to the party, however the chicken wasn't too impressed by the suggestion she become a cake. 
 
 <img src="https://i.chzbgr.com/maxW500/6417113344/h6A34D381/" alt="scared chicken" />
+
+The red pandas agreed a party was an excellent plan ![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
