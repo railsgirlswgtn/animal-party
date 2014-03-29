@@ -64,3 +64,5 @@ BATman tried to crash the party, claiming that his batsuit made him part animal.
 But it's okay, he danced anyway.
 ![batdance](http://kontraband.se/blog/wp-content/uploads/2009/07/batman.gif)
 
+and so they grooved the night away.
+![animal party](http://i.imgur.com/ZzgdJ.gif)
