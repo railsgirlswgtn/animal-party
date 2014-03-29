@@ -42,7 +42,7 @@ At a puppy birthday party you need cake for the animals.  Here's a recipe, yum y
   For dog birthday cake 'icing' use a spread made from either yoghurt or cream cheese<br/>
   
   So yummy that a crocodile fought several elephants for a taste: <br/>
-  ![Thirsty llama](http://a.gifb.in/042011/1303234791_elephant-vs-croc.gif)
+  ![Hungry elephant](http://a.gifb.in/042011/1303234791_elephant-vs-croc.gif)
 
 One of the guests, Doge, was very impressed with the catering!
 <img src='http://memecrunch.com/meme/18IVV/doge-party/image.png' width="100"/>
@@ -63,4 +63,8 @@ BATman tried to crash the party, claiming that his batsuit made him part animal.
 
 But it's okay, he danced anyway.
 ![batdance](http://kontraband.se/blog/wp-content/uploads/2009/07/batman.gif)
+
+<em>Not sure this cat's high is legal</em><br/>
+![Laser eyed cat](http://cdn.makeagif.com/media/6-27-2013/m6bFZa.gif)
+
 
