@@ -3,6 +3,8 @@ The party was attended by a variety of different animals. Including this very th
 
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
+Rube the Rabbit stares confused. Where is my coffee?
+
 ![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
 At an animal party you need cake for the animals.  Here's a recipe, yum yum!
