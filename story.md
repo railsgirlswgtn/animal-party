@@ -1,5 +1,6 @@
-Once upon a time there was an animal party.
-The party was attended by a variety of different animals. Including this very thiirrrsty llama.
+Once upon a time there was an animal party. The party was attended by a variety of different animals.
+Including this very thiirrrsty llama.
+![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
@@ -12,8 +13,6 @@ And then Apollo Coffee came to the rescue. All the animals that had been sleepy 
 "LET'S PARTY" said the fox. 
 
 "It's my birthday", said the Official Rails Girls Puppy.
-
-![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
 At a puppy birthday party you need cake for the animals.  Here's a recipe, yum yum!
 
