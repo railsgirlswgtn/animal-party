@@ -31,3 +31,5 @@ It's a good thing some one thought to invite the chicken to the party, however t
 <img src="https://i.chzbgr.com/maxW500/6417113344/h6A34D381/" width="100" alt="scared chicken" />
 
 The red pandas agreed a party was an excellent plan ![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
+
+Ain't no party without some chinchilling. <img src='http://cdnimg.visualizeus.com/thumbs/81/ad/adorable,animals,birthday,chinchilla,cute,food-81adf8771f6cd633d0068aa3a844ab05_h.jpg?ts=93246'/> 
