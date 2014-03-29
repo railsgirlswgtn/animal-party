@@ -7,3 +7,7 @@ More animals like to party here
 ![party pug](http://i.imgur.com/wKhMHHO.gif)
 
 ![party cat by nedroid](http://i.imgur.com/TruOgso.gif)
+
+And of course there can't be a great party without pandas!
+
+![panda party](http://f.kulfoto.com/pic/0001/0001/oG5sC377.jpg)
