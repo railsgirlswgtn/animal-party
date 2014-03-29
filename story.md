@@ -4,6 +4,8 @@ Including this very thiirrrsty llama.
 
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
+<p><img src="http://sharedawg.com/wp-content/uploads/2013/10/OFQsOaZ.jpg" alt="hehehehehehhhee" /></p>
+
 Rube the Rabbit stares confused. "Coffeeeeeee"
 
 And then Apollo Coffee came to the rescue. All the animals that had been sleepy felt wide awake. 
