@@ -1,13 +1,13 @@
 Once upon a time there was an animal party.
 The party was attended by a variety of different animals. Including this very thiirrrsty llama.
 
+![Thirsty llama](http://i.imgur.com/civQQne.gif)
+
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
 ![googly meerkat](http://i.imgur.com/f5WrJKP.gif)
 
 Rube the Rabbit stares confused. "Coffeeeeeee"
-
-![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
 The pug wanted a costume party...
 
