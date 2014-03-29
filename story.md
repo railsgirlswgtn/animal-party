@@ -5,11 +5,19 @@ All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
 Rube the Rabbit stares confused. "Coffeeeeeee"
 
+And then Apollo Coffee came to the rescue. All the animals that had been sleepy felt wide awake. 
+
+![COFFEE](http://blog.muchmusic.com/wp-content/uploads/2014/03/Ke7XsN8.gif)
+
+"LET'S PARTY" said the fox. 
+
+"It's my birthday", said the Official Rails Girls Puppy.
+
 ![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
-At an animal party you need cake for the animals.  Here's a recipe, yum yum!
+At a puppy birthday party you need cake for the animals.  Here's a recipe, yum yum!
 
-<h3>Dog Birthday Cake Chicken recipe - Ingredients</h3>
+<h3>Puppy Birthday Cake Chicken recipe - Ingredients</h3>
 <strong>This dog birthday cake Chicken recipe requires the following ingredients:</strong><br/>
 
   350 g ( 12 oz) chopped or minced Chicken <br/>
