@@ -24,4 +24,6 @@ It's a good thing some one thought to invite the chicken to the party, however t
 
 <img src="https://i.chzbgr.com/maxW500/6417113344/h6A34D381/" alt="scared chicken" />
 
-The red pandas agreed a party was an excellent plan ![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
+<img src='https://i.chzbgr.com/maxW500/8123338496/hAF747EFF/'/>
+Droopy Jr. was up way past his bedtime and was beginning to tire of OctoHoudini's antics.
+<img src='https://i.chzbgr.com/maxW500/8123112704/hFB02BE29/'/>
