@@ -1,6 +1,8 @@
 Once upon a time there was an animal party.
 The party was attended by a variety of different animals. Including this very thiirrrsty llama.
 
+All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
+
 ![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
 At an animal party you need cake for the animals.  Here's a recipe, yum yum!
