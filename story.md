@@ -3,7 +3,7 @@ The party was attended by a variety of different animals. Including this very th
 
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
-Rube the Rabbit stares confused. Where is my coffee?
+Rube the Rabbit stares confused. "Coffeeeeeee"
 
 ![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
