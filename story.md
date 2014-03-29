@@ -14,7 +14,15 @@ And then Apollo Coffee came to the rescue. All the animals that had been sleepy 
 
 "LET'S PARTY" said the fox. 
 
-"It's my birthday", said the Official Rails Girls Puppy.
+"It's my birthday", said Ruby, the Official Rails Girls Puppy.
+
+![Ruby](http://25.media.tumblr.com/tumblr_m3y3d79IkB1r4b3lxo1_500.jpg)
+
+"Happy Birthday, Ruby!" said @theJDuce.
+
+![Jess](https://pbs.twimg.com/profile_images/378800000578929654/23508b26402d54fa7192ba84de80288b.jpeg)
+
+"Woof", said Ruby, politely.
 
 At a puppy birthday party you need cake for the animals.  Here's a recipe, yum yum!
 
