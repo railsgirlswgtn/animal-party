@@ -21,7 +21,9 @@ At an animal party you need cake for the animals.  Here's a recipe, yum yum!
   Finely chopped Parsley (Optional)<br/>
   Half cup grated Carrot<br/>
   For dog birthday cake 'icing' use a spread made from either yoghurt or cream cheese<br/>
-  <img src='http://tepchef.com/wp-content/uploads/2013/12/Birthday-Cakes-For-Dogs-959.jpg'/>
+  
+  So yummy that a crocodile fought several elephants for a taste: <br/>
+  ![Thirsty llama](http://a.gifb.in/042011/1303234791_elephant-vs-croc.gif)
 
 One of the guests, Doge, was very impressed with the catering!
 <img src='http://memecrunch.com/meme/18IVV/doge-party/image.png' width="100"/>
@@ -31,5 +33,3 @@ It's a good thing some one thought to invite the chicken to the party, however t
 <img src="https://i.chzbgr.com/maxW500/6417113344/h6A34D381/" width="100" alt="scared chicken" />
 
 The red pandas agreed a party was an excellent plan ![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
-
-Ain't no party without some chinchilling. <img src='http://cdnimg.visualizeus.com/thumbs/81/ad/adorable,animals,birthday,chinchilla,cute,food-81adf8771f6cd633d0068aa3a844ab05_h.jpg?ts=93246'/> 
