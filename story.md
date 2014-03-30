@@ -66,3 +66,6 @@ But it's okay, he danced anyway.
 
 and so they grooved the night away.
 ![animal party](http://i.imgur.com/ZzgdJ.gif)
+
+early in the morning, Ulysseus the unicorn decided to join the party.
+![animal party](http://www.animated-gifs.eu/fantastic-unicorns/0012.gif)
