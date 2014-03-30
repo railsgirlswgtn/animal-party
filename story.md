@@ -66,3 +66,6 @@ But it's okay, he danced anyway.
 
 and so they grooved the night away.
 ![animal party](http://i.imgur.com/ZzgdJ.gif)
+
+The bears started getting rowdy with a conga line.
+![conga](http://media.giphy.com/media/pTqwKt1WyfTsQ/giphy.gif)
