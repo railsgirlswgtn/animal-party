@@ -4,7 +4,17 @@ Including this very thiirrrsty llama.
 
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
-<p><img src="http://sharedawg.com/wp-content/uploads/2013/10/OFQsOaZ.jpg" alt="hehehehehehhhee" /></p>
+![googly meerkat](http://i.imgur.com/f5WrJKP.gif)
+
+Rube the Rabbit stares confused. "Coffeeeeeee"
+
+The pug wanted a costume party...
+
+![pug cake](http://d3j5vwomefv46c.cloudfront.net/photos/large/846118724.jpg?1396131652)
+
+But the cat wasn't happy about wearing a unicorn horn.
+
+![unicorn cat](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/844645660.gif?1395348811)
 
 Rube the Rabbit stares confused. "Coffeeeeeee"
 
@@ -51,7 +61,24 @@ It's a good thing some one thought to invite the chicken to the party, however t
 
 <img src="https://i.chzbgr.com/maxW500/6417113344/h6A34D381/" width="100" alt="scared chicken" />
 
-The red pandas agreed a party was an excellent plan ![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
+The red pandas agreed a party was an excellent plan 
+
+![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
+
+First she wanted to hit the gym for a quick workout. 
+
+![red panda pullups](http://i.imgur.com/64rdlYr.gif)
+
+But her friend quickly talked her into having a sandwich instead.
+
+![panda sandwich](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/841754073.gif?1393793901)
+
+The silly dog wanted to come, but his human wouldn't throw the stick.
+
+![statue fetch](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/844645859.gif?1395349014)
+
+Ain't no party without some chinchilling. 
+<img src='http://cdnimg.visualizeus.com/thumbs/81/ad/adorable,animals,birthday,chinchilla,cute,food-81adf8771f6cd633d0068aa3a844ab05_h.jpg?ts=93246'/> 
 
 Annnnd the next door neighbours goat was sad because he wasnt invited ![goats](https://pbs.twimg.com/media/Bj3Fc65CMAAH2ov.jpg)
 
