@@ -51,6 +51,8 @@ At a puppy birthday party you need cake for the animals.  Here's a recipe, yum y
   Half cup grated Carrot<br/>
   For dog birthday cake 'icing' use a spread made from either yoghurt or cream cheese<br/>
   
+  ![Fold in the eggs](http://24.media.tumblr.com/415b9ce0f0ff57abc3efb4ff45e12080/tumblr_mk48z1iNQY1rpl3bro1_500.gif)
+  
   So yummy that a crocodile fought several elephants for a taste: <br/>
   ![Thirsty llama](http://a.gifb.in/042011/1303234791_elephant-vs-croc.gif)
 
