@@ -13,7 +13,7 @@ The pug wanted a costume party...
 
 ![pug cake](http://d3j5vwomefv46c.cloudfront.net/photos/large/846118724.jpg?1396131652)
 
-But the cat wasn't happy about wearing unicorn horn.
+But the cat wasn't happy about wearing a unicorn horn.
 
 ![unicorn cat](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/844645660.gif?1395348811)
 
