@@ -20,7 +20,7 @@ describe "The never ending story" do
     num_gifs = text.scan(/\.gif/).count
     words_to_awesomeness_ratio = num_words / num_gifs
 
-    expect(words_to_awesomeness_ratio).to be >= WORDS_TO_AWESOMENESS_RATIO
+    expect(words_to_awesomeness_ratio).to be <= WORDS_TO_AWESOMENESS_RATIO
   end
 
   it "has animals" do
