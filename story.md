@@ -2,6 +2,10 @@ Once upon a time there was an animal party. The party was attended by a variety 
 Including this very thiirrrsty llama.
 ![Thirsty llama](http://i.imgur.com/civQQne.gif)
 
+Slow Loris was SO excited to have been invited to the party. "ME?" he said. "You invited me? Hooray!"
+
+![slow loris](http://2.bp.blogspot.com/-TIndC5NHZww/Uo_H678vNiI/AAAAAAAADU4/rQIqbDf99fo/s1600/slow-loris.gif)
+
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
 ![googly meerkat](http://i.imgur.com/f5WrJKP.gif)
@@ -98,6 +102,3 @@ and so they grooved the night away.
 
 early in the morning, Ulysseus the unicorn decided to join the party.
 ![animal party](http://www.animated-gifs.eu/fantastic-unicorns/0012.gif)
-
-<em>Not sure this cat's high is legal</em><br/>
-![Laser eyed cat](http://cdn.makeagif.com/media/6-27-2013/m6bFZa.gif)
