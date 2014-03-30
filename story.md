@@ -54,7 +54,7 @@ At a puppy birthday party you need cake for the animals.  Here's a recipe, yum y
   ![Fold in the eggs](http://24.media.tumblr.com/415b9ce0f0ff57abc3efb4ff45e12080/tumblr_mk48z1iNQY1rpl3bro1_500.gif)
   
   So yummy that a crocodile fought several elephants for a taste: <br/>
-  ![Thirsty llama](http://a.gifb.in/042011/1303234791_elephant-vs-croc.gif)
+  ![Hungry elephant](http://a.gifb.in/042011/1303234791_elephant-vs-croc.gif)
 
 One of the guests, Doge, was very impressed with the catering!
 <img src='http://memecrunch.com/meme/18IVV/doge-party/image.png' width="100"/>
