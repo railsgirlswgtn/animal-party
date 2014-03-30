@@ -98,3 +98,6 @@ and so they grooved the night away.
 
 early in the morning, Ulysseus the unicorn decided to join the party.
 ![animal party](http://www.animated-gifs.eu/fantastic-unicorns/0012.gif)
+
+<em>Not sure this cat's high is legal</em><br/>
+![Laser eyed cat](http://cdn.makeagif.com/media/6-27-2013/m6bFZa.gif)
