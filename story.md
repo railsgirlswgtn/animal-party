@@ -4,7 +4,17 @@ Including this very thiirrrsty llama.
 
 All of a sudden, Merrin the Mercat pops up. "Hellooo!" She squeaks.
 
-<p><img src="http://sharedawg.com/wp-content/uploads/2013/10/OFQsOaZ.jpg" alt="hehehehehehhhee" /></p>
+![googly meerkat](http://i.imgur.com/f5WrJKP.gif)
+
+Rube the Rabbit stares confused. "Coffeeeeeee"
+
+The pug wanted a costume party...
+
+![pug cake](http://d3j5vwomefv46c.cloudfront.net/photos/large/846118724.jpg?1396131652)
+
+But the cat wasn't happy about wearing a unicorn horn.
+
+![unicorn cat](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/844645660.gif?1395348811)
 
 Rube the Rabbit stares confused. "Coffeeeeeee"
 
@@ -41,6 +51,8 @@ At a puppy birthday party you need cake for the animals.  Here's a recipe, yum y
   Half cup grated Carrot<br/>
   For dog birthday cake 'icing' use a spread made from either yoghurt or cream cheese<br/>
   
+  ![Fold in the eggs](http://24.media.tumblr.com/415b9ce0f0ff57abc3efb4ff45e12080/tumblr_mk48z1iNQY1rpl3bro1_500.gif)
+  
   So yummy that a crocodile fought several elephants for a taste: <br/>
   ![Hungry elephant](http://a.gifb.in/042011/1303234791_elephant-vs-croc.gif)
 
@@ -51,7 +63,24 @@ It's a good thing some one thought to invite the chicken to the party, however t
 
 <img src="https://i.chzbgr.com/maxW500/6417113344/h6A34D381/" width="100" alt="scared chicken" />
 
-The red pandas agreed a party was an excellent plan ![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
+The red pandas agreed a party was an excellent plan 
+
+![red pandas](http://i.imgur.com/h9YE2RRl.jpg)
+
+First she wanted to hit the gym for a quick workout. 
+
+![red panda pullups](http://i.imgur.com/64rdlYr.gif)
+
+But her friend quickly talked her into having a sandwich instead.
+
+![panda sandwich](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/841754073.gif?1393793901)
+
+The silly dog wanted to come, but his human wouldn't throw the stick.
+
+![statue fetch](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/844645859.gif?1395349014)
+
+Ain't no party without some chinchilling. 
+<img src='http://cdnimg.visualizeus.com/thumbs/81/ad/adorable,animals,birthday,chinchilla,cute,food-81adf8771f6cd633d0068aa3a844ab05_h.jpg?ts=93246'/> 
 
 Annnnd the next door neighbours goat was sad because he wasnt invited ![goats](https://pbs.twimg.com/media/Bj3Fc65CMAAH2ov.jpg)
 
@@ -64,7 +93,11 @@ BATman tried to crash the party, claiming that his batsuit made him part animal.
 But it's okay, he danced anyway.
 ![batdance](http://kontraband.se/blog/wp-content/uploads/2009/07/batman.gif)
 
+and so they grooved the night away.
+![animal party](http://i.imgur.com/ZzgdJ.gif)
+
+early in the morning, Ulysseus the unicorn decided to join the party.
+![animal party](http://www.animated-gifs.eu/fantastic-unicorns/0012.gif)
+
 <em>Not sure this cat's high is legal</em><br/>
 ![Laser eyed cat](http://cdn.makeagif.com/media/6-27-2013/m6bFZa.gif)
-
-
