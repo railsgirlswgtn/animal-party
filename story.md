@@ -16,8 +16,6 @@ But the cat wasn't happy about wearing a unicorn horn.
 
 ![unicorn cat](http://d3j5vwomefv46c.cloudfront.net/photos/thumb/844645660.gif?1395348811)
 
-<p><img src="http://sharedawg.com/wp-content/uploads/2013/10/OFQsOaZ.jpg" alt="hehehehehehhhee" /></p>
-
 Rube the Rabbit stares confused. "Coffeeeeeee"
 
 And then Apollo Coffee came to the rescue. All the animals that had been sleepy felt wide awake. 
